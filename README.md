@@ -62,4 +62,4 @@ The analysis includes:
 ## 📬 Connect With Me
 
 *Saraswathi | Data Analyst*  
-🔗 LinkedIn: https://www.linkedin.com/in/saraswathi-gongala-6249a9137/
+🔗 LinkedIn: [linkedin](https://www.linkedin.com/in/saraswathi-gongala-6249a9137/)
