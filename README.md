@@ -61,5 +61,5 @@ The analysis includes:
 
 ## 📬 Connect With Me
 
-*Ajay | Data Analyst*  
+*Saraswathi | Data Analyst*  
 🔗 LinkedIn: https://www.linkedin.com/in/saraswathi-gongala-6249a9137/
